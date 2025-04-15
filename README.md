@@ -29,4 +29,4 @@
 
 🐦 twitter • [@venolol](https://ven.earth/twitter)  
 
-💬 discord • [ven#9999](https://ven.earth/discord)
+💬 discord • [venshiba](https://ven.earth/discord)
